@@ -1,0 +1,2 @@
+# LQXMan.github.io
+BLOG
